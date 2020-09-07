@@ -1,0 +1,2 @@
+# NewsCube
+HAVE FUN!!!
